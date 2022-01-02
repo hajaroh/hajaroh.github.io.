@@ -1,1 +1,0 @@
-# hajaroh.github.io.
